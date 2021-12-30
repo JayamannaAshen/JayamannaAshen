@@ -2,7 +2,8 @@
 - 👀 I’m interested in ... building new things
 - 🌱 I’m currently learning ... coding and programming stuffs
 - 💞️ I’m looking to collaborate on ... None
-- 📫 How to reach me ... Dm me on twitter [Ashen Jayamanna]
+- 📫 How to reach me ... Mail me in jayamannabusinesses@gmail.com
+- 
 
 
 <!---
